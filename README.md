@@ -2,4 +2,4 @@
 
 aspiring programmer/engineer. will save the world someday
 
-random thoughts
+random rant
